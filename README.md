@@ -1,8 +1,8 @@
 # Meva-Anima
 
 Meva anima transparent,</br>
-Meu ego en aquest cos calent,</br>
-Ya no m'ofego en els pensaments,</br>
+meu ego en aquest cos calent,</br>
+ya no m'ofego en els pensaments,</br>
 la boira escampa amb aquest vent estrident.</br>
 El que va començar amb un vidre desfet,</br>
 ha agafat forma, d'ocell lluent.</br>
